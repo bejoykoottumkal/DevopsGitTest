@@ -6,9 +6,7 @@ tis
 
 	
 
- 
+dfgvjk dfv-wq
+
 wq
 =
-
-
-ncw
