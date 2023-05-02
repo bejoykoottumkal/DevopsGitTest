@@ -1,12 +1,4 @@
 sjdjdoiahc
 sdhfhasjaj
-tis
 
-
-
-	
-
-dfgvjk dfv-wq
-
-wq
-=
+these are the new changes
